@@ -10,4 +10,6 @@ Bom trabalho com TI desde os 18 anos, já passei por praticamente todas as área
 #### Quais os meus objetivos?
 Pretendo em até 6 meses conseguir uma oportunidade na área e concluir o curso na DH que terá bastante peso no meu currículo.
 
+
+
 ## Front I - T10NT
